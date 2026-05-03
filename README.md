@@ -1,0 +1,2 @@
+# Gacor
+Ga
